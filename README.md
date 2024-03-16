@@ -7,9 +7,9 @@
 
 优云666官网：
 
-[https://youyun5220.com](https://youyun5220.com/auth/register?code=jIRv)
+[https://youyun860.com](https://youyun860.com/auth/register?code=jIRv)
 
-[https://youyun590.xyz](https://youyun590.xyz/auth/register?code=jIRv)
+[https://youyun590.xyz](https://sars.win/out/jikess)
 
 优云666官网打不开了，[优云666跑路了吗？](https://youyun590.xyz/auth/register?code=jIRv)并没有，只是官网被屏蔽了，点击上网最新优云666官网即可进入。
 
